@@ -1,0 +1,3 @@
+- 👋 Oi, eu sou @kellifernanda
+- 👀 eu gosto de jogar bola
+- 🌱 estou no 1 ano do colégio Rui Barbosa 
